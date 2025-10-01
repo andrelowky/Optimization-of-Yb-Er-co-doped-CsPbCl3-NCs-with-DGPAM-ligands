@@ -1,0 +1,1 @@
+# Optimization-of-Yb-Er-co-doped-CsPbCl3-NCs-with-DGPAM-ligands
